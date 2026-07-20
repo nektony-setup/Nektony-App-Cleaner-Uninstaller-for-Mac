@@ -1,0 +1,1 @@
+# Nektony-App-Cleaner-Uninstaller-for-Mac
